@@ -182,14 +182,14 @@
 </p>
  <p align="left">
   <a href="https://youtube.com/@technicalmalikofficial?si=CXnFQmsKVz-0eHq3 ?sub_confirmation=1">
-    <img alt=Support height="70" src="https://telegra.ph/file/eb6347e2764939fbbd35d.png"> 
+    <img alt=Support height="70" src="https://telegra.ph/file/bd2b30e7ec0b943650d5c.jpg"> 
   </p>
     
  ***Tap On Logo To Contat Me***
  <p align="left">
   <a href="akk728492@gmail.com">
     <img src="https://i.ibb.co/Kx8NXxT/mail-gmail-22737.png" align="centre" width="90" />
-   <a href="https://wa.me/923124533358?text=Hi%20Ata-Ur-Rehman%20Sir...%20I%20need%20some%20help%20in%20Malik-MD">
+   <a href="https://wa.me/254720736160?text=Hi%20Ata-Ur-Rehman%20Sir...%20I%20need%20some%20help%20in%20Malik-MD">
     <img src="https://i.ibb.co/2MLVZwm/whatsapp-logo-icon-181644.png" align="centre" width="90" />
 
 
